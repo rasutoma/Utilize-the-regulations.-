@@ -5,5 +5,5 @@
 てかまず公認の偽物ってなに？
 あと俺の偽物やるってことは好きやんな？
 ならやっていいよありがとうただ俺はおまえのこと嫌い
-##　偽物で許可した人リスト↓
+## 偽物を許可したアカウント↓
 ![許可1](https://raw.githubusercontent.com/rasutoma/Utilize-the-regulations.-/refs/heads/main/%E7%94%BB%E5%83%8F/Screenshot_20251017_144910_TikTok.png)
