@@ -18,3 +18,5 @@
 
 認可も暴れもしてない謎の生物
 ![どーせ猫の捨て垢だろ](https://raw.githubusercontent.com/rasutoma/Utilize-the-regulations.-/refs/heads/main/%E7%94%BB%E5%83%8F/Screenshot_20251015_190042_TikTok.png)
+
+今後は監視します
