@@ -2,6 +2,8 @@
 
 ![こいつだけは許さん](https://raw.githubusercontent.com/rasutoma/Utilize-the-regulations.-/refs/heads/main/%E7%94%BB%E5%83%8F/1760251074997.jpg)
 
+![ブロックの瞬間](https://raw.githubusercontent.com/rasutoma/Utilize-the-regulations.-/refs/heads/main/%E7%94%BB%E5%83%8F/20251017_175552.gif)
+
 ↓↓↓↓↓理由↓↓↓↓↓↓↓↓
 ![理由1](https://raw.githubusercontent.com/rasutoma/Utilize-the-regulations.-/refs/heads/main/%E7%94%BB%E5%83%8F/1760251074824.jpg)
 
@@ -12,7 +14,7 @@
 
 あぁ、忘れてた
 イライラする理由3
-![東方オタク否定しそうで怖いからいわんとこ](https://raw.githubusercontent.com/rasutoma/Utilize-the-regulations.-/refs/heads/main/%E7%94%BB%E5%83%8F/Screenshot_20251012_172923_TikTok.png)
+![私刑](https://raw.githubusercontent.com/rasutoma/Utilize-the-regulations.-/refs/heads/main/%E7%94%BB%E5%83%8F/Screenshot_20251012_172923_TikTok.png)
 
 ## 誰やねんおまえ
 
